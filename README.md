@@ -1,1 +1,0 @@
-# aykutaltun.github.io
